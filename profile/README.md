@@ -3,11 +3,11 @@
 The wait for *Pushpa 2* is finally over as fans eagerly anticipate the next chapter of this blockbuster saga. After the massive success of *Pushpa: The Rise*, expectations are sky-high for the sequel, which promises even more action, drama, and intense performances. Directed by Sukumar and starring Allu Arjun in the lead role, *Pushpa 2* is set to take the audience on an even more thrilling ride.
 
 ![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
-<h3><a href="https://movieslink.short.gy/Pushpa-2-Movie-Full-HD">➤ ►🌍📺📱👉 Pushpa 2 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
+<h3><a href="https://movieslink.short.gy/pushpa-2">➤ ►🌍📺📱👉 Pushpa 2 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
-<h3><a href="https://movieslink.short.gy/Pushpa-2-Movie-Full-HD">➤ ►🌍📺📱👉 Pushpa 2 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
+<h3><a href="https://movieslink.short.gy/pushpa-2">➤ ►🌍📺📱👉 Pushpa 2 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
-<h3><a href="https://movieslink.short.gy/Pushpa-2-Movie-Full-HD">➤ ►🌍📺📱👉 Pushpa 2 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
+<h3><a href="https://movieslink.short.gy/pushpa-2">➤ ►🌍📺📱👉 Pushpa 2 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
 ## What We Know About Pushpa 2
 
